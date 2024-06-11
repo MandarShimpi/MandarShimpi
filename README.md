@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MandarShimpi
+- 👀 I’m interested in learning new things one of them is porgeamming currrently learning C, have baisc knowledge of Python. #CodingLife.
+- 💞️ I’m looking to collaborate on this jourmy of programming and having a lot of fun , meeting new people.
+- 📫 How to reach me- X (twitter) @_ShimpiMandar, Gmail- Mandarsshimpi999@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I started coding since 7th grade and in love with it ever since.
